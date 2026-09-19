@@ -11,7 +11,7 @@
 
 𝐅𝐚𝐦𝐢𝐥𝐲 !
 <h6>
-Thank you for always being there for me : )
+Thank you for always being there for me ^‿^
 </h6>
 <br>
 <a href="https://github.com/c0ff3el0v3r">
