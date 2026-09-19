@@ -33,6 +33,6 @@ Thank you for always being there for me ^‿^
  <a href="https://github.com/puhzinha">
   <img src="https://file.garden/aoZcQsbH5m5bERAE/Pum" width="100">
  </a>
-<a href="https://github.com/jalbertforever">
+<a href="https://github.com/jalbert-forever">
   <img src="https://file.garden/aoZcQsbH5m5bERAE/Max" width="100">
  </a>
